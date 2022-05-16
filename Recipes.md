@@ -1,0 +1,1 @@
+first we have to boil the rice and then we have to put some oil and ginger,garlic paste and schwann sauce and mix it for 2mins and finally we have to put rice and mix it.
